@@ -61,9 +61,8 @@ That’s where **moissanite** enters the picture:
 * **Celestial designs** inspire imagination.
 
 **[BLYN](https://blynjewelry.com/)** incorporates high-brilliance moissanite into distinct, celestial-inspired collections:
-* **[SunMoon Radiance Moissanite Earrings](https://blynjewelry.com/)**
-* **[Exo-Star Dream & Celestial Butterfly Studs](https://blynjewelry.com/)**
-* **[Altair Wing Ring & Sirius Bright Moissanite Ring](https://blynjewelry.com/)**
+* **[SunMoon Radiance Moissanite Earrings](https://blynjewelry.com/products/star-and-moon-in-harmony-earrings-set-with-top-quality-moissanite-s925-silver-and-platinum-plated-stud-earrings-a-fashionable-and-trendy-accessory-that-can-be-tested-with-a-diamond-pen?_pos=1&_psq=Sunmoon&_psid=45c603c4d&_ss=e)**
+* **[Exo-Star Dream & Celestial Butterfly Studs](https://blynjewelry.com/products/star-river-wandering-earrings-set-with-top-quality-moissanite-s925-silver-and-platinum-plated-stud-earrings-a-fashionable-and-trendy-accessory-can-be-tested-with-a-diamond-pen?_pos=1&_psq=Exo+star&_psid=b2b33b7e3&_ss=e)**
 
 Suddenly, your jewelry isn't just "a gold ring" — it’s the exact mood you want to project.
 
